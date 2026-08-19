@@ -1,1 +1,1 @@
-THIS IS SOLELY MADE BY AI. I have absolute zero contribution in it.
+This was created entirely by AI. I made ABSOLUTELY no contribution to it.
